@@ -1,2 +1,2 @@
 # cv
-[cv 2024 Dinko Azema en.pdf](https://github.com/user-attachments/files/17422544/cv.2024.Dinko.Azema.en.pdf)
+[CV Dinko Azema Barahona 2025](https://github.com/user-attachments/files/19675510/CV.Dinko.Azema.Barahona.2025.pdf)
